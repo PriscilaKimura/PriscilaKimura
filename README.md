@@ -6,7 +6,7 @@
 
 💬 Minha experiência anterior em fonoaudiologia trouxe uma rica coleção de habilidades interpessoais, chamadas de soft skills, que estimo imensamente. Comunicação, trabalho em equipe, resolução de problemas, pensamento crítico, criatividade e inteligência emocional que são apenas algumas das habilidades que adquiri e aplico em todas as esferas da minha vida.
 
-🎯 Meus objetivos profissionais estão focados na área de desenvolvimento e análise de projetos desafiadores, onde posso fundir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua, com a meta de me tornar uma desenvolvedora full-stack.
+🎯 Meus objetivos profissionais estão focados na área de desenvolvimento e análise de projetos desafiadores, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua, com a meta de me tornar uma desenvolvedora full-stack.
 
 🌱 Estou sempre buscando aprender e evoluir, com o desejo sincero de contribuir significativamente para o campo da tecnologia. Estou entusiasmada para fazer conexões, compartilhar ideias e explorar oportunidades de colaboração.
 
