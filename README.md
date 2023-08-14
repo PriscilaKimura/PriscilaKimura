@@ -1,6 +1,6 @@
 ### Olá, sou a Priscila Kimura! 👋
 
- Sou uma desenvolvedora Front-end, que tomou a decisão corajosa de realizar uma transição de carreira da área da saúde para o campo da tecnologia em abril de 2023. 🚀
+ Sou uma desenvolvedora Front-end, que tomou a decisão de realizar uma transição de carreira da área da saúde para o campo da tecnologia em abril de 2023. 🚀
 
 🎓 Atualmente, estou imersa em minha jornada acadêmica, cursando Análise e Desenvolvimento de Sistemas. Além disso, estou completando um curso abrangente em Desenvolvimento de Software e trazendo comigo uma formação sólida em Desenvolvimento Full-stack.
 
