@@ -4,7 +4,7 @@
 
 🎓 Atualmente, estou imersa em minha jornada acadêmica, cursando Análise e Desenvolvimento de Sistemas. Além disso, estou completando um curso abrangente em Desenvolvimento de Software e trazendo comigo uma formação sólida em Desenvolvimento Full-stack.
 
-💬 Minha experiência anterior em fonoaudiologia trouxe uma rica coleção de habilidades interpessoais, chamadas de soft skills, que estimo imensamente. Comunicação, trabalho em equipe, resolução de problemas, pensamento crítico, criatividade e inteligência emocional que são apenas algumas das habilidades que adquiri e aplico em todas as esferas da minha vida.
+💬 Minha experiência anterior em fonoaudiologia trouxe uma rica coleção de habilidades interpessoais, chamadas de soft skills, que estimo imensamente. Comunicação, trabalho em equipe, resolução de problemas, empatia, gestão de tempo, pensamento crítico, resiliência, criatividade e inteligência emocional que são apenas algumas das habilidades que adquiri e aplico em todas as esferas da minha vida.
 
 🎯 Meus objetivos profissionais estão focados na área de desenvolvimento e análise de projetos desafiadores, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua, com a meta de me tornar uma desenvolvedora full-stack.
 
