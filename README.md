@@ -4,7 +4,7 @@
 
 🎓  Cursando Análise e Desenvolvimento de Sistemas, aluna do DevClub e do BootCamp Santander, com a meta de me tornar uma desenvolvedora Full-stack.
 
-💬  Minha experiência anterior em fonoaudiologia trouxe uma rica coleção de habilidades interpessoais, que estimo imensamente. Comunicação, trabalho em equipe, resolução de problemas, empatia, gestão de tempo, pensamento crítico, resiliência, criatividade e inteligência emocional que são algumas das habilidades que adquiri e aplico em todas as áreas da minha vida.
+💬  Minha experiência anterior em fonoaudiologia trouxe uma rica coleção de habilidades interpessoais, que valorizo imensamente. Comunicação, trabalho em equipe, resolução de problemas, empatia, gestão de tempo, pensamento crítico, resiliência, criatividade e inteligência emocional que são algumas das habilidades que adquiri e aplico em todas as áreas da minha vida.
 
 🎯  Meus objetivos profissionais estão focados na área de desenvolvimento e análise de projetos desafiadores, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua.
 
