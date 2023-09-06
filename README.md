@@ -10,7 +10,7 @@
 
 🌱  Estou sempre buscando aprender e evoluir, com o desejo sincero de contribuir significativamente para o campo da tecnologia. Estou entusiasmada para fazer conexões, compartilhar ideias e explorar oportunidades de colaboração.
 
-🧘‍♀️📺✈️📚 Meus hobbies incluem yoga, assistir séries, viajar, ler e curtir barzinhos temáticos. 
+🧘‍♀️📺✈️📚 Meus hobbies são praticar yoga, assistir séries, viajar, ler e curtir barzinhos temáticos. 
 
 📩  E-mail: priscila.kimura@hotmail.com
 <br>
