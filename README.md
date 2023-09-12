@@ -1,6 +1,6 @@
 ### Olá, sou a Priscila Kimura! 👋
 
- 🚀  Sou uma Desenvolvedora Front-End apaixonada por tecnologia, natural de Belo Horizonte.
+ 🚀  Sou uma Desenvolvedora Front-end apaixonada por tecnologia, natural de Belo Horizonte.
 
 🎓  Cursando Análise e Desenvolvimento de Sistemas, aluna do DevClub e do BootCamp Santander, com a meta de me tornar uma desenvolvedora Full-Stack.
 
