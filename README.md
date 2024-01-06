@@ -6,7 +6,7 @@
 
 💬  Minha experiência anterior em fonoaudiologia trouxe uma rica coleção de habilidades interpessoais, que prezo imensamente: comunicação, trabalho em equipe, resolução de problemas, empatia, gestão de tempo, pensamento crítico, resiliência, criatividade e inteligência emocional que são algumas das habilidades que adquiri e aplico em todas as áreas da minha vida.
 
-🎯  Meus objetivos profissionais estão focados na área de desenvolvimento e análise de projetos, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua.
+🎯  Meus objetivos profissionais estão focados na área de desenvolvimento e análise de sistemas, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua.
 
 🌱  Estou sempre buscando aprender e evoluir, com o desejo sincero de contribuir significativamente para o campo da tecnologia. Estou entusiasmada para fazer conexões, compartilhar ideias e explorar oportunidades de colaboração.
 
