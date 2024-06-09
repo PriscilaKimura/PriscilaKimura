@@ -1,14 +1,14 @@
 ### Olá, sou a Priscila Kimura! 👋
 
- 🚀  Sou uma Desenvolvedora Front-end apaixonada por tecnologia, natural de Belo Horizonte.
+🚀 Sou uma Desenvolvedora de Software apaixonada por tecnologia, natural de Belo Horizonte.
 
-🎓  Cursando Análise e Desenvolvimento de Sistemas e aluna do DevClub, com a meta de me tornar uma desenvolvedora Full-Stack.
+🎓 Graduanda de Análise e Desenvolvimento de Sistemas, cursando Engenharia de Dados no Santander Coders, além de um curso técnico de Desenvolvimento Full-Stack no DevClub.
 
-💬  Minha experiência anterior em fonoaudiologia trouxe uma rica coleção de habilidades interpessoais, que prezo imensamente: comunicação, trabalho em equipe, resolução de problemas, empatia, gestão de tempo, pensamento crítico, resiliência, criatividade e inteligência emocional que são algumas das habilidades que adquiri e aplico em todas as áreas da minha vida.
+💬 Minha experiência anterior em fonoaudiologia trouxe habilidades interpessoais valiosas, como comunicação, trabalho em equipe, resolução de problemas e empatia, que aplico em todas as áreas da minha vida.
 
-🎯  Meus objetivos profissionais estão focados na área de desenvolvimento de software, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua.
+🎯 Meus objetivos profissionais estão focados na área de desenvolvimento de software, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua.
 
-🌱  Estou sempre buscando aprender e evoluir, com o desejo sincero de contribuir significativamente para o campo da tecnologia. Estou entusiasmada para fazer conexões, compartilhar ideias e explorar oportunidades de colaboração.
+🌱 Estou sempre buscando aprender e evoluir, com o desejo sincero de contribuir significativamente para o campo da tecnologia. Estou entusiasmada para fazer conexões, compartilhar ideias e explorar oportunidades de colaboração.
 
 🧘‍♀️📺✈️📚 Meus hobbies são praticar yoga, assistir séries, viajar, ler e curtir barzinhos temáticos. 
 
