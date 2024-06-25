@@ -2,7 +2,7 @@
 
 🚀 Sou uma Desenvolvedora de Software apaixonada por tecnologia, natural de Belo Horizonte.
 
-🎓 Graduanda de Análise e Desenvolvimento de Sistemas e um curso técnico de Desenvolvimento Full-Stack.
+🎓 Graduanda de Análise e Desenvolvimento de Sistemas e cursando técnico em de Desenvolvimento Full-Stack.
 
 💬 Minha experiência anterior em fonoaudiologia trouxe habilidades interpessoais valiosas, como comunicação, trabalho em equipe, resolução de problemas e empatia, que aplico em todas as áreas da minha vida.
 
