@@ -6,7 +6,7 @@
 
 💬 Minha experiência anterior em fonoaudiologia trouxe habilidades interpessoais valiosas, como comunicação, trabalho em equipe, resolução de problemas e empatia, que aplico em todas as áreas da minha vida.
 
-🎯 Meus objetivos profissionais estão focados na área de desenvolvimento de software, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei. Meu compromisso é com a aprendizagem contínua.
+🎯 Meus objetivos profissionais estão focados na área de desenvolvimento de software, onde posso unir minhas habilidades técnicas com as interpessoais que cultivei.
 
 🌱 Estou sempre buscando aprender e evoluir, com o desejo sincero de contribuir significativamente para o campo da tecnologia. Estou entusiasmada para fazer conexões, compartilhar ideias e explorar oportunidades de colaboração.
 
